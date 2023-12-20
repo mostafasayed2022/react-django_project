@@ -12,3 +12,5 @@ omar yousef           2020030107
 abdallah mohamed atrabi  2020030152
 zkaria Gamal          2020030030
 Abd el rahman Adel 2020030039
+mohamed fared      2020030178
+Ibrahem ahmed     2020030095
